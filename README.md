@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KusumaKushiGowda
-- 👀 I’m interested in Graphic designing
+- 👀 I’have experience interested in Graphic designing
 - 🌱 I’m currently employee in  garjee infomedia of designer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
